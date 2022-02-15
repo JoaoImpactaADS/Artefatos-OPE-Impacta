@@ -1,3 +1,11 @@
 # Artefatos-OPE-Impacta
 Artefatos/TCC - Impacta ADS
-//Sinta-se a vontade em analisar todos os artefatos e tamo junto =)
+Cliente: Triunfo Balanças
+Loading: 50%
+Projeto by:
+
+João Santana
+Leonardo Nunes
+Leonardo Meira
+Camila Trindade
+Vitor Gorzoni
